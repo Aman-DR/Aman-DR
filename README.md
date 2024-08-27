@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **shaikazeemkhan135@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/home](https://drive.google.com/drive/u/0/home)
+- 📄 Know about my experiences [https://amanullah-resume.tiiny.site](https://amanullah-resume.tiiny.site)
 
 - ⚡ Fun fact **I think I am funny**
 
